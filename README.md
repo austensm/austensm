@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @austensm
-- I go to Vanderbilt University and I am studying Computer Science
